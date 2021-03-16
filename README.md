@@ -1,3 +1,3 @@
 # 565799D8F61DF7C5
 
-![ARDENT SAVIOR](https://i.imgur.com/8SfJImC.jpg)
+![MERCATOR DENDRITE](https://i.imgur.com/2ws1N7L.png)
